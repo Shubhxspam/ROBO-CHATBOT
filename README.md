@@ -1,7 +1,7 @@
-### 🌷𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑🌷
+### 🌷𝐒𝐇𝐔𝐁𝐇🌷
 
 <!--
-**itzshukla/itzshukla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Shubhxspam/Shubhxspam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
 <p align="center">
